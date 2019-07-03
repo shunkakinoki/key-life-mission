@@ -67,3 +67,41 @@ THROUGHOUT THE COMING TIMES...
 ## Societary
 
 DO WHAT IS TRULY RIGHT IN THE PERSPECTIVE OF THE GREATER GOOD
+
+### A Common Case
+
+We often see the phrase
+
+"To make people happier"
+
+"For a brighter future"
+
+"To push the human race forward"
+
+### What is happiness ???
+
+Is this even indisputable ???
+
+### "The Greater Good" Differs Between Each Perspcetive
+
+The Earth
+
+The Humanity
+
+The Country
+
+### Then What ???
+
+There is a decent chance that
+
+"Technological Advancement"
+
+will NOT contribute to "The Greater Good"
+
+### What CAN We DO
+
+Subjectively Contribute To Build a Future For
+
+"The Greater Good"
+
+in general.
