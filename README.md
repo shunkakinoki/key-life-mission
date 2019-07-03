@@ -14,7 +14,13 @@ INVENT A PRODUCT / SERVICE THAT IS TRULY GALAXY-SHATTERING
 
 ### iPhone Release Date
 
+June 29, 2007
 
+### My Experience
+
+Can never forget this day...
+
+My mind was blown.
 
 ### What Drives Me
 
@@ -40,7 +46,23 @@ the mobile payment economic industry,
 
 etc...
 
-### 
+### From Another Perspective
+
+This can be said as a form of "infatuation" occuring in the human society.
+
+### Isn't this Incredible ???
+
+ISN'T THIS INCREDIBLE???
+
+### ONE DEVICE
+
+ONE DEVICE
+
+THAT WAS THE INITATOR OF THE "INFATUATION" THAT ENGULFED
+
+BILLIONS OF PEOPLE
+
+THROUGHOUT THE COMING TIMES...
 
 ## Societary
 
